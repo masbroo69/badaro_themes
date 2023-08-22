@@ -1,1 +1,1 @@
-# badaro_themes
+# Badaro Premium Themes Hotspot
